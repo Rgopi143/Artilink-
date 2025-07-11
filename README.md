@@ -66,7 +66,7 @@ Visit the **Contact Us** section to:
 
 - Nava Durga Meda
 - Dedeepya Madhi
-- Third Team Member (Update with name)
+- R. Gopinath Reddy
 
 ---
 
